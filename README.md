@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @WHOMSTZZZZZ
+- 👀 I’m interested in anime, games, and random romcoms
+- 🌱 I’m currently learning C and Java
+- 📫 You can reach me on twitter @Whomst_z
